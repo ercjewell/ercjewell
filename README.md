@@ -1,6 +1,7 @@
 - 👋🏾 Hello, I’m Jewells.
 - I’m an Information Professional with 10+ years of Information Sciences (IS) expereince. 
-- That means I know Libraries, Archives, Curation, and Communitity iniatives. 
+- That means I know Libraries; creating a implementing community programs
+-   Archives, Curation, and Communitity iniatives. 
 
 - I'm an Artist (song-writer), Musician (singer, piano & guitar), Producer (Jewells), and Gamer. 
 
