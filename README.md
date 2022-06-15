@@ -1,7 +1,7 @@
 - 👋🏾 Hello, I’m Jewells.
 - I’m an Information Professional with a 10+ years of Information Sciences (IS) expereince & a Master of Science, Information Sciences degree. 
 - That means I know Libraries; Public & Academic. I love creating a implementing programs that foster collaboration & community. 
-- My expereinces is also in Presercation, Archives & Curation. 
+- My expereinces is also in Preservation, Archives & Curation. 
 
 - I'm an Artist (song-writer), Musician (singer, piano & guitar), Producer (Jewells), with a Bachelors in Fine Arts (vocal performance), and Gamer (twitch.tv/mona__lisha). 
 
